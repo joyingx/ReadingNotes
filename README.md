@@ -15,6 +15,7 @@
 | 书名                                       | 摘录   | 评分   |
 | ---------------------------------------- | ---- | ---- |
 | [《心理学的故事──源起与演变（卷一）》](https://www.amazon.cn/%E5%BF%83%E7%90%86%E5%AD%A6%E7%9A%84%E6%95%85%E4%BA%8B-%E6%BA%90%E8%B5%B7%E4%B8%8E%E6%BC%94%E5%8F%98-%E7%BE%8E-%E8%8E%AB%E9%A1%BF-%E4%BA%A8%E7%89%B9/dp/B01JG7CIIY/ref=sr_1_1_twi_kin_2?ie=UTF8&qid=1487486978&sr=8-1&keywords=%E5%BF%83%E7%90%86%E5%AD%A6%E7%9A%84%E6%95%85%E4%BA%8B) |      | ★★★☆ |
+| [《美丽新世界》](https://www.amazon.cn/dp/B00R44VYE6/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=1488554207&sr=8-2) |      | ★★★★ |
 
 ### 1月
 
